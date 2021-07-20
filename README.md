@@ -1,1 +1,0 @@
-# johnkennethteodoro.github.io
